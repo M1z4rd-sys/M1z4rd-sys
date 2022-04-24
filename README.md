@@ -1,4 +1,4 @@
-### Hi there 👋
+### Naber knk? 👋
 
 <!--
 **M1z4rd-sys/M1z4rd-sys** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
