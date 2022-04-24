@@ -1,4 +1,4 @@
-<img src="https://www.technopat.net/sosyal/eklenti/bilgisayar-gif.1082262/" width="auto">
+<img src="https://thumbs.gfycat.com/BetterHandmadeGull-size_restricted.gif" width="auto">
 
 ### Naber knk? 👋
 
